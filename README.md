@@ -171,3 +171,7 @@
 ## 中国林业科学研究院
 
 ~~【报名截止：7.22】[资源信息研究所](https://mp.weixin.qq.com/s/_m2WZdWsYhObMXcit12lQw)~~
+
+## 兰州大学
+
+> [兰州大学预推免信息——兰州大学2025年推免生预报名正在火热进行中！](https://mp.weixin.qq.com/s/mJDzb8C-UimoBANGzW81gQ)
